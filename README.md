@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **VueJs, AngularJS, NextJS**
 
-- 👨‍💻 Check my portfolio at [charlesgonzales.vercel.app](charlesgonzales.vercel.app)
+- 👨‍💻 Check my portfolio at [https://charlesgonzales.vercel.app/](https://charlesgonzales.vercel.app/)
 
 - 📫 How to reach me **https://www.linkedin.com/in/charles-david-gonzales-51b87826a/**
 
