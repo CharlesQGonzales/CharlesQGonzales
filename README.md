@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/charles-david-gonzales-51b87826a/**
 
-- 📄 Know about my experiences [https://cdn.fbsbx.com/v/t59.2708-21/356095835_963546314701378_7016238174568363549_n.pdf/Charles-Gonzales-CV.pdf?_nc_cat=108&ccb=1-7&_nc_sid=0cab14&_nc_ohc=D-jxe7XSHRAAX-Es4R2&_nc_ht=cdn.fbsbx.com&oh=03_AdSd5iZhvh8083jyF6LgRetiOUdSlAT3kNEq1xOqqz0p2g&oe=64AFB0C9&dl=1](https://cdn.fbsbx.com/v/t59.2708-21/356095835_963546314701378_7016238174568363549_n.pdf/Charles-Gonzales-CV.pdf?_nc_cat=108&ccb=1-7&_nc_sid=0cab14&_nc_ohc=D-jxe7XSHRAAX-Es4R2&_nc_ht=cdn.fbsbx.com&oh=03_AdSd5iZhvh8083jyF6LgRetiOUdSlAT3kNEq1xOqqz0p2g&oe=64AFB0C9&dl=1)
+- 📄 Check my CV at [https://cdn.fbsbx.com/v/t59.2708-21/355695620_573293094972609_1250450405881619052_n.pdf/Charles-Gonzales-CV.pdf?_nc_cat=110&ccb=1-7&_nc_sid=0cab14&_nc_ohc=NLadQ3086b4AX9mm14_&_nc_ht=cdn.fbsbx.com&oh=03_AdT5Txr5JfYg-4THWRFR80jdagBNM5xNChCvIU3KizGM0w&oe=64AF98BA&dl=1](https://cdn.fbsbx.com/v/t59.2708-21/355695620_573293094972609_1250450405881619052_n.pdf/Charles-Gonzales-CV.pdf?_nc_cat=110&ccb=1-7&_nc_sid=0cab14&_nc_ohc=NLadQ3086b4AX9mm14_&_nc_ht=cdn.fbsbx.com&oh=03_AdT5Txr5JfYg-4THWRFR80jdagBNM5xNChCvIU3KizGM0w&oe=64AF98BA&dl=1)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
