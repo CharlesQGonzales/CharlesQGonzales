@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Charles Q. Gonzales</h1>
-<h3 align="center">Aspiring Front-end Developer</h3>
+<h3 align="center">Full Stack Developer</h3>
 
 - 🔭 I’m currently working on [Geekburgers](https://github.com/CharlesQGonzales/GeekBurgers-laravel)
 
